@@ -1,0 +1,1 @@
+those are all repositories from the bootcamp i followed for a few moonths
